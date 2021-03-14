@@ -4,3 +4,4 @@ One day the crocodile came to the banks of the river and rested under the tree.
 The monkey offered him some fruits.
 The crocodile came back the next day for more fruits as he loved them.
 As days passed by, the crocodile and the monkey became best friends.
+The berries were delicious and the crocodile liked it.
